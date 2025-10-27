@@ -78,4 +78,4 @@ Phone: +94 76 073 7173
 Email: jamahiraazafritha@gmail.com  
 LinkedIn: [https://www.linkedin.com/in/aazafritha](https://www.linkedin.com/in/aazafritha)  
 GitHub: [https://github.com/aazafritha](https://github.com/aazafritha)  
-Medium: [https://medium.com/@jamahiraazafritha]([https://medium.com/@jamahiraazafritha]) 
+Medium: [https://medium.com/@jamahiraazafritha](https://medium.com/@jamahiraazafritha) 
